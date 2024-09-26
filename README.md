@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Riza Fahmi Muharram
 
-NIM : 
+NIM : 607062400093
 
 ## Instruksi
 
